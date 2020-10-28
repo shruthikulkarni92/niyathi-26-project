@@ -1,0 +1,4 @@
+This is the recipe for Chocolate Marble Cake
+
+It is very easy to make. It is soft and is filled chocolaty delight. Once it is made, it becomes fluffy and spongy. 
+It is an interesting fusion cake recipe made by combining 2 cake batter. The batter is mixed in such way that there are 2 distinct colors clearly visible overlapping each other. This is later baked like any other traditional cake and thus forming a zebra-like an appearance with 2 distinct colours from chocolate and plain cake batter.You can also create a beautiful design on it. It is one of my favourite cakes. You should also try this interesting recipe.
